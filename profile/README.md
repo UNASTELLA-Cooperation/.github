@@ -1,4 +1,4 @@
-## Hey, this is us 👋
+## We are into rockets, in case you didn't know.
 
  
 
