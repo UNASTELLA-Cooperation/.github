@@ -2,7 +2,7 @@
 
  
 
-![UNASTELLA](https://github.com/UNASTELLA-Cooperation/.github/blob/964504d33f902b210ef3cd392ac9b1b64cec7788/profile/banner.pngg)
+![UNASTELLA](https://github.com/UNASTELLA-Cooperation/.github/blob/964504d33f902b210ef3cd392ac9b1b64cec7788/profile/banner.png)
 
  
 
