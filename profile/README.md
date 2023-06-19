@@ -6,7 +6,7 @@
 
  
 
-We are a new-space startup company, located in Seoul, South Korea, with the motives of devloping and providing a human space flight platform with our own launch vehicle.
+We are a new-space startup company, located in Seoul, South Korea, with the motives of developing and providing a human space flight platform with our own launch vehicle.
 
  
 
