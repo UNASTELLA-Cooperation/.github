@@ -1,4 +1,4 @@
-## We are into rockets, in case you didn't know.
+## We are into rockets, in case it wasn't obvious enough.
 
  
 
